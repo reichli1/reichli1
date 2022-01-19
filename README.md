@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @reichli1
+- 👀 I’m interested in anything
+- 🌱 I’m currently trying to learn for life
